@@ -70,7 +70,7 @@ A digital products and network hardware store with local payment integration.
 - Email: emmajacksons750@gmail.com 
 - LinkedIn:https://www.linkedin.com/in/lubwama-emmanuel-9493a4311 
 
-
+contact +256 789 035286 
 ---
 
 🌱 A Bit About Me
